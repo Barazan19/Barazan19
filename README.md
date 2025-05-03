@@ -1,5 +1,5 @@
-Opo wae tak tabrak sing menjadi penghalang!!!
-Tresno tekan matiku mung sampean
-Raono muntire lehku berjuang
-Kudu dadi siji ora urusa
+Opo wae tak tabrak sing menjadi penghalang!!!<br>
+Tresno tekan matiku mung sampean<br>
+Raono muntire lehku berjuang<br>
+Kudu dadi siji ora urusan<br>
 Sampai pada tujuan Tuhan mohon ijinkan...

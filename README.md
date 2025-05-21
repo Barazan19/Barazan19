@@ -8,6 +8,6 @@
 📊 Data in, prediction out.  
 
 🧬 Building intelligent systems — one probability at a time.  
-🛠️ Python | ML | LLMs | Backend  
+🛠️ Python | ML | DL | BI Dev  
 
 ⚙️ Projects reflect real-time decisions, not past paths.
